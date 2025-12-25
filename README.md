@@ -1,0 +1,1 @@
+# TQTU-as-an-Independent-Fundamental-Theory-Ontological-Mathematical-and-Dynamical-Criteria
